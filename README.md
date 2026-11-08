@@ -1,0 +1,1 @@
+# Planejador-de-Aula-Alinhado-BNCC
